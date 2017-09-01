@@ -1,1 +1,0 @@
-# sandepal.github.io
